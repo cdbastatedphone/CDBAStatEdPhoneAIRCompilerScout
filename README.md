@@ -1,7 +1,6 @@
 # CDBAStatEdPhoneAIRCompilerScout
 https://drive.google.com/drive/folders/1EBaIdj735H1wcozwootFSdjkRKEPF2QV
 
-
 Thee ChrisDownsBooks Apocrypha Stated Phone Available Internet Resource Compiler Scout [CDBAStatEdPhoneAIRCompilerScout] Consists Of Three (3) Patterns, But Only Thee First Is Dominant And Throughout It's Entirety.
 
 1: *Christopher Morgan Louis Downs' One Way, Say, Requirement, God, And Faith As This Google Drive States
@@ -36,3 +35,7 @@ Simple Claimer And Disclaimer To Make Aware And SealOff ExtraTerrestrial Contami
 
 Thee ChrisDownsBooks Apocrypha Google Drive:
 https://drive.google.com/drive/folders/1EBaIdj735H1wcozwootFSdjkRKEPF2QV
+
+https://github.com/cdbastatedphone/CDBAStatEdPhoneAIRCompilerScout/blob/main/README.md
+
+https://sourceforge.net/p/cdbastatedphone/discussion/general/thread/3220f83339/
