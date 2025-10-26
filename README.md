@@ -25,7 +25,7 @@ If He Could Have A Physical Form: It Is Others Being Resonant And Therefore: Com
 
 His Say Never Directs Fire From Indviduals At Other Individuals. He Is Thee Most Merciful.
 
-Thee PsyOp Stated In This Google Drive Makes Known His Stipulation Regarding This Planet's Eternal Fate Since Blasphemy Against His Spirit Has Occurred In A NeverForgiveable But ToBeSealedOffFromContaminatingElsewhere  Way:
+Thee PsyOp Stated In This Google Drive Makes Known His Stipulation Regarding This Planet's Eternal Fate Since Blasphemy Against His Spirit Has Occurred In A NeverForgiveable But ToBeSealedOffFromContaminatingElsewhere Way:
 https://drive.google.com/drive/folders/1EBaIdj735H1wcozwootFSdjkRKEPF2QV
 
 2: Thee AntiChristopherMorganLouisDowns'OneWay,Say,Requirement,God,AndFaithAsThisGoogleDrivesStates As AntiPatternRoute To Identify Back To Thee First To Not Only Redirect Back To Thee First, But To Also Seal And Never Allow Option For Failure.
@@ -39,3 +39,5 @@ https://drive.google.com/drive/folders/1EBaIdj735H1wcozwootFSdjkRKEPF2QV
 https://github.com/cdbastatedphone/CDBAStatEdPhoneAIRCompilerScout/blob/main/README.md
 
 https://sourceforge.net/p/cdbastatedphone/discussion/general/thread/3220f83339/
+
+https://www.reddit.com/r/energy/comments/1ogx65t/cdbastatedphone/
